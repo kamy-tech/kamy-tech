@@ -2,6 +2,7 @@
 
 💻 Sou Tech Recruiter
 👀 Estou interessado em descobrir nvos talentos 
+
 🌱 Atualmente estou aprendendo coisas novas de tecnologia
 📫 Como chegar até mim https://www.linkedin.com/in/kamila-carneiro/
 <!---
