@@ -1,6 +1,6 @@
 👋 Oi, sou @ kamy-tech
 
-💻 Sou Tech  Recruiter
+💻 Sou Recrutadora
 
 👀 Estou interessado em descobrir nvos talentos
 
