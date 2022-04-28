@@ -2,7 +2,7 @@
 
 💻 Recrutadora
 
-👀 Estou interessado em descobrir novos talentos
+👀 Estou interessada em descobrir novos talentos
 
 🌱 Atualmente estou aprendendo coisas novas de tecnologia
 
